@@ -61,7 +61,7 @@ Through consistent effort and reflection, I’ve grown more confident and indust
 ---
 
 ### 🔗 **Video Link**
-📹 *[https://drive.google.com/file/d/148OVWuWFj21JqNAm2QDcwd10kWkwED6e/view?usp=sharing]*
+📹 *[https://youtu.be/xSrmEFvvE18?si=RflDXdEoDIctFJKP]*
 
 ---
 
